@@ -13,10 +13,11 @@
 
 🌱**兴趣爱好:** 魔术、游戏、智能家居
 
+[个人主页](https://www.fanxiaoyao.com)
 
 ---
 
-多吃饭多睡觉，记得爱❤️自己。
+多吃饭多睡觉，记得爱[❤️](https://www.fanxiaoyao.com)自己。
 
 <!--
 **Fanxiaoyao66/Fanxiaoyao66** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
