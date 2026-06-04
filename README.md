@@ -11,13 +11,13 @@
 
 ⚡️**专业技能:** 二进制漏挖、无人机劫持
 
-🌱**兴趣爱好:** 魔术、游戏、智能家居
+🌱**兴趣爱好:** 游戏、智能家居、动漫
 
-🖥️[**个人主页**](https://www.fanxiaoyao.com) #暂时下线
+🖥️[**个人主页**](https://www.fanhexuan.com) 
 
 ---
 
-多吃饭多睡觉，记得爱[❤️](https://www.fanxiaoyao.com)自己。
+人生就该如此阿~。
 
 <!--
 **Fanxiaoyao66/Fanxiaoyao66** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
