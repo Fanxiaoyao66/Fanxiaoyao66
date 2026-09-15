@@ -7,15 +7,16 @@
 
 工作ing 📖
 
-🔭**研究方向:** 无人机安全、IOT安全、硬件安全
+🔭**研究:** 无线安全
 
-⚡️**专业技能:** 二进制漏挖、无人机劫持
-
-🌱**兴趣爱好:** 游戏、智能家居、动漫
+🌱**爱好:** 游戏、智能家居、动漫
 
 🖥️[**个人主页**](https://www.fanhexuan.com) 
 
 ---
+<img width="4284" height="5712" alt="fb4fc16807705d697e8d34146dfb0c7f" src="https://github.com/user-attachments/assets/b8e7bdbd-ec09-4266-820c-16e0ee68ab0b" />
+
+
 
 人生就该如此阿~。
 
